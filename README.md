@@ -1,0 +1,2 @@
+# HiringDOTYasinta
+Yasinta Amalia Bakti
